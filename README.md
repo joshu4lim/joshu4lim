@@ -3,7 +3,7 @@
 - 💬 You can ask me about any genre of anime or the Michigan Wolverine Football Team! 〽️ 
 - 😄 Pronouns: He/Him 
 
-You can reach me through [Email](chaelim@umich.edu) or [LinkedIn](https://www.linkedin.com/in/joshua-lim-k/)
+You can reach me through chaelim@umich.edu or [LinkedIn](https://www.linkedin.com/in/joshua-lim-k/)
 <!---
 joshu4lim/joshu4lim is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.

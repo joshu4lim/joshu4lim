@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Joshua Lim 
-- 🌱 I’m an undergrad junior at the University of Michigan - Ann Arbor, majoring in Computer Science! 
+- 🌱 I’m an undergrad senior at the University of Michigan - Ann Arbor, majoring in Computer Science and Cognitive Science! 
 - 💬 You can ask me about any genre of anime or the Michigan Wolverine Football Team! 〽️ 
 - 😄 Pronouns: He/Him 
 
